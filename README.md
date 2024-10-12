@@ -1,0 +1,1 @@
+Tanya dari pada bingung
